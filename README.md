@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @BertrandDmb
-- 👀 I’m interested in codin, SEM, marketing & communication
+- 👀 I’m interested in coding, SEM, marketing & communication
 - 🌱 I’m currently learning digital marketing & business
 - 💞️ I’m looking to collaborate on association, e-commerce
 - 📫 How to reach me b.dammerey@gmail.com
